@@ -15,3 +15,5 @@
 ![chungchisocapnghe(toan)](https://user-images.githubusercontent.com/113705782/190863543-bbbae9bf-9854-4140-b1cc-10e8c4f83d03.jpg)
 ![chungchisocapnghe(tho)](https://user-images.githubusercontent.com/113705782/190863545-1b87ba43-ab59-480c-ab98-a66ca61fba1e.jpg)
 ![chungchisocapnghe(tri)](https://user-images.githubusercontent.com/113705782/190863548-a44bbb07-72d3-4556-b9ce-321f529981bd.jpg)
+![giau](https://user-images.githubusercontent.com/113705782/208941450-570f3d14-c849-4a92-b3ec-02366855da92.jpg)
+![NHUT](https://user-images.githubusercontent.com/113705782/208941471-c5a1bd77-7c51-47a4-9c75-abbf1b3f71c2.jpg)
